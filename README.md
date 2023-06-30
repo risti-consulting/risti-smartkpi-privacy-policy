@@ -22,10 +22,8 @@ As informações pessoais fornecidas são armazenadas apenas pelo tempo necessá
 
 Esta política de privacidade pode ser atualizada ocasionalmente para refletir melhorias ou mudanças em nossos serviços. Recomendamos que você reveja periodicamente esta política para se manter atualizado sobre como suas informações são tratadas.
 
-## Jurisdição e leis aplicáveis
+## Contato
 
-A Skill Smart KPI opera sob a jurisdição e leis aplicáveis do país em que a Skill é disponibilizada.
-
-Se você tiver alguma dúvida ou preocupação relacionada à privacidade ou ao uso de suas informações pessoais pela Skill Smart KPI, entre em contato conosco por meio dos canais fornecidos na Skill.
+Se você tiver alguma dúvida ou preocupação relacionada à privacidade ou ao uso de suas informações pessoais pela Skill Smart KPI, entre em contato conosco por meio do email suporte@risti.com.br
 
 *Atualizado em 30/06/2023.*
