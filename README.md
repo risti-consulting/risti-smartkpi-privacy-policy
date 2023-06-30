@@ -28,4 +28,4 @@ A Skill Smart KPI opera sob a jurisdição e leis aplicáveis do país em que a 
 
 Se você tiver alguma dúvida ou preocupação relacionada à privacidade ou ao uso de suas informações pessoais pela Skill Smart KPI, entre em contato conosco por meio dos canais fornecidos na Skill.
 
-*Atualizado em [data de atualização da política de privacidade].*
+*Atualizado em 30/06/2023.*
