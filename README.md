@@ -1,0 +1,1 @@
+# risti-smartkpi-privacy-policy
